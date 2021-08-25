@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with some basic skills on coding, and learning to use MOOC and other ways to learn knowledge online
 - 📫 How to reach me: If you want to connect with me, try to use e-mail.
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: Watching funny videos and laugh for a long time.
+- ⚡ Fun fact: Watching animate and read some books.
